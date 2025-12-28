@@ -1,4 +1,4 @@
-# SEO Content Brief: AI Voiceover Software 
+# SEO Content Brief: AI Voiceover Software
 
 ## Primary keyword
 AI voiceover software
